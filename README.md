@@ -91,7 +91,7 @@ Feel free to fork the repo and submit a pull request.
 
 ## 📬 Contact
 
-📡 Reach me at: **[1khushibarnwal.dev@gmail.com](mailto:1khushibarnwal.dev@gmail.com)**
+📡 Reach me at: **[nayab4657@gmail.com](mailto:nayab4657@gmail.com)**
 
 ---
 
